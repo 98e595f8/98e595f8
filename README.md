@@ -4,9 +4,9 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=98e595f8&label=Profile%20views&color=fe71c3&style=flat" alt="98e595f8" /> </p>
 
 
- <h3 align="center"> shock.lol [https://shock.lol/j](https://shock.lol/j)
- <h3 align="center"> guns.lol [https://guns.lol/w](https://guns.lol/w)
- <h3 align="center"> kys.lol [https://kys.lol/e](https://kys.lol/e)
+ <h3 align="center">shock.lol [https://shock.lol/j](https://shock.lol/j)
+ <h3 align="center">guns.lol [https://guns.lol/w](https://guns.lol/w)
+ <h3 align="center">kys.lol [https://kys.lol/e](https://kys.lol/e)
 
 
 <h3 align="center">Connect with me:</h3>
