@@ -5,8 +5,8 @@
 
 
  <h3 align="center"> shock.lol [https://shock.lol/j](https://shock.lol/j)
- <h3 align="center"> guns.lol  [https://guns.lol/w](https://guns.lol/w)
- <h3 align="center"> kys.lol  [https://kys.lol/e](https://kys.lol/e)
+ <h3 align="center"> guns.lol [https://guns.lol/w](https://guns.lol/w)
+ <h3 align="center"> kys.lol [https://kys.lol/e](https://kys.lol/e)
 
 
 <h3 align="center">Connect with me:</h3>
