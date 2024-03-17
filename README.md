@@ -11,8 +11,9 @@
 
 [https://kys.lol/e](https://kys.lol/e)
 
-<h3 align="center">Connect with me:</h3>
-<p align="center">
-<a href="https://instagram.com/hahabloob" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/instagram.svg" alt="hahabloob" height="30" width="40" /></a>
-<a href="https://discord.com/users/1048171869339136010" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/discord.svg" alt="https://discord.com/users/1048171869339136010" height="30" width="40" /></a>
-</p>
+<h3 align="center">Connect with me :3 </h3>
+<h3 align="center">
+
+[Discord ; Click Here >_<](https://discord.com/users/1048171869339136010)
+
+[Insta ; Click Here >w<](https://instagram.com/hahabloob)
