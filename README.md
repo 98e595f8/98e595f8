@@ -8,7 +8,7 @@
  <h3 align="center"> guns.lol  [https://guns.lol/w](https://guns.lol/w)
  <h3 align="center"> kys.lol  [https://kys.lol/e](https://kys.lol/e)
 
-- Fun fact **I am gay**
+<h4 align="left"> Fun fact **I am gay**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
