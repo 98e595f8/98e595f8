@@ -1,7 +1,7 @@
 <h1 align="center">Hi, I'm Bloob 🎀</h1>
 <h3 align="center">am silly and am lil slut  >.< </h3>
 
-<p align="center"> <img src="https://visitor-badge.laobi.icu/badge?page_id=98e595f8.98e595f8&left_color=black&right_color=darkgray&left_text=Views!" /> </p>
+<p align="center"> <img src="https://visitor-badge.laobi.icu/badge?page_id=98e595f8.98e595f8&left_color=black&right_color=pink&left_text=Views!" /> </p>
 
 <h3 align="center">
  
