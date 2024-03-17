@@ -1,7 +1,7 @@
 <h1 align="center">Hi, I'm Bloob 🎀</h1>
 <h3 align="center">am silly and am lil slut  >.< </h3>
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=98e595f8&label=Profile%20views&color=fe71c3&style=flat-square" alt="98e595f8" /> </p>
+<p align="center"> <img src=" ![visitors](https://visitor-badge.laobi.icu/badge?page_id=98e595f8)" alt="98e595f8" /> </p>
 
 <h3 align="center">
  
