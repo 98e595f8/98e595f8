@@ -11,7 +11,7 @@
 
 [https://kys.lol/e](https://kys.lol/e)
 
-<h3 align="center">Connect with me :3 </h3>
+<h3 align="center">connect with me :3 </h3>
 <h3 align="center">
 
 [Discord ; Click Here](https://discord.com/users/1048171869339136010)
